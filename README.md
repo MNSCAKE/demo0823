@@ -2,3 +2,4 @@
 
 - Doreen翠翠翠
 - 温
+- Kate Chou
